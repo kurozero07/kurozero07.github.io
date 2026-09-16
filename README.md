@@ -1,0 +1,1 @@
+# kurozero07.github.io
